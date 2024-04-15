@@ -1,1 +1,1 @@
-# kdg_2023_1_yutokota
+# kdg_2023_1_yuyokota
